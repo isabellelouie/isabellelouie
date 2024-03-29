@@ -16,6 +16,4 @@ As a T-shaped designer, my strengths in user research are complemented by a dive
 
 My passion lies in understanding user behaviour and transforming insights into impactful solutions that enhance everyday experiences. As a goal-oriented individual, I am driven by my love for continual learning, embracing curiosity, and helping others achieve their goals.
 
-I am currently in my final semester at Simon Fraser University, completing a joint major in Business and Interactive Arts and Technology. 
-
-Outside of school and work, I am an avid powerlifter and have represented Team Canada internationally! 
+I am currently in my final semester at Simon Fraser University, completing a joint major in Business and Interactive Arts and Technology. Outside of school and work, I am an avid powerlifter and have represented Team Canada internationally! 
